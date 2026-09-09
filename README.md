@@ -54,9 +54,9 @@ Networking ◇ Quality Assurance
 </td>
 <td align="center">
 
-**Backseat Driver** — TobyMac  
+**Dance Class** — Good Kid  
 `━━━━━━━━━━━━━━━━●━━━━`  
-`02:58 ━━━━━━━━━ 03:24`
+`01:49 ━━━━━━━━━ 02:58`
 
 </td>
 </tr>
