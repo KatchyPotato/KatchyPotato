@@ -54,7 +54,7 @@ Networking ◇ Quality Assurance
 </td>
 <td align="center">
 
-**Dance Class** — Good Kid  
+**Cicada** — Good Kid  
 `━━━━━━━━━━━━━━━━●━━━━`  
 `01:49 ━━━━━━━━━ 02:58`
 
